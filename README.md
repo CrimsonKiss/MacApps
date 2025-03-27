@@ -1,5 +1,4 @@
 # Mac Apps Directors Cut Editon
-My App list from [Reddit](https://www.reddit.com/r/macapps/comments/1jea4ua/my_list_of_macos_apps_because_people_love_these)
 
 </br>
 </br>
